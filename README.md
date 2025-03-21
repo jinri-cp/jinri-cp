@@ -1,3 +1,4 @@
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&center=true&vCenter=true&random=true&width=435&lines=JINRICP%26PandaClass)](https://git.io/typing-svg)
 ## JINRICP 👋
 JINRICP DOWN：[点击下载JINRICP全季](https://mypikpak.com/s/VODz7HXQoqcX0UrvaXfDtFoPo1)
 
