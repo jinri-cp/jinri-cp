@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&center=true&vCenter=true&random=true&width=435&lines=JINRICP%26PandaClass)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&center=true&vCenter=true&random=true&width=435&lines=所有链接都需要翻墙访问)](https://git.io/typing-svg)
 ## JINRICP 👋   
 JINRICP DOWN：[点击下载JINRICP全季](https://mypikpak.com/s/VODz7HXQoqcX0UrvaXfDtFoPo1)
 ****
@@ -10,7 +10,7 @@ PandaClass DOWN：[点击下载PandaClass全季](https://mypikpak.com/s/VOKOTZko
 1. 电报订阅号[@xjavbus](https://t.me/xjavbus)
 2. 电报聊天群[@ljavbus](https://t.me/ljavbus)
 **** 
-📕 &nbsp;**Latest Blog Posts**
+📕 &nbsp;**每日更新各类资源**
 <!-- BLOG-POST-LIST:START -->
 - [BJ脱衣舞女团PandaClass【熊猫班】3月20日第三季第13集【名牌锦标赛】【12V/38.1G】](https://fuli.niuc.net/299.html)
 - [OnlyFans台湾麻豆AV女忧suchanghub&lpar;苏畅&rpar;收费订阅合集[108P89V16.7G]](https://fuli.niuc.net/298.html)
