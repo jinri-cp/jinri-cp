@@ -8,4 +8,8 @@ PandaClass DOWN：[点击下载PandaClass全季](https://mypikpak.com/s/VOKOTZko
 ****
 ## 订阅群组 🔞
 1. 电报订阅号[@xjavbus](https://t.me/xjavbus)
-2. 电报聊天群[@ljavbus](https://t.me/ljavbus)   
+2. 电报聊天群[@ljavbus](https://t.me/ljavbus)
+**** 
+📕 &nbsp;**Latest Blog Posts**
+<!-- BLOG-POST-LIST:START -->
+<!-- BLOG-POST-LIST:END -->
