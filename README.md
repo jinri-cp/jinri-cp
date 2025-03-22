@@ -1,4 +1,3 @@
-[![哪吒](https://i1.wp.com/tupian.li/images/2025/03/22/67de05383356d.jpg)](https://fuli.niuc.net)   
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&center=true&vCenter=true&random=true&width=435&lines=所有链接都需要翻墙访问)](https://fuli.niuc.net)
 ## JINRICP 👋   
 JINRICP DOWN：[点击下载JINRICP全季](https://mypikpak.com/s/VODz7HXQoqcX0UrvaXfDtFoPo1)
