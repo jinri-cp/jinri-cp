@@ -1,3 +1,4 @@
+# jinricp|PandaClass|韩国BJ|韩国女主播|pandatv|진리컴퍼니资源下载中心   
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&center=true&vCenter=true&random=true&width=435&lines=所有链接都需要翻墙访问)](https://jinri-cp.neocities.org/free.html)
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&center=true&vCenter=true&random=true&width=435&lines=点击进入福利资源下载中心)](https://pandaclass.neocities.org/free.html)
 ## JINRICP 👋   
