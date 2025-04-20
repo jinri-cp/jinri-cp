@@ -15,9 +15,9 @@ JINRICP第四季番外篇更新中，PandaClass第四季更新中。
 **** 
 📕 &nbsp;**每日更新各类资源**
 <!-- BLOG-POST-LIST:START -->
+- [Fansly极品粉嫩露脸萝莉『yurinslittlepeach』啪啪视频福利合集[42V16G]](https://fuli.rulel.com/347.html)
+- [BJ脱衣舞女团PandaClass【熊猫班】4月19日第四季第3集【盲选奖惩日】【13V/42.2G】](https://fuli.rulel.com/346.html)
 - [BJ脱衣舞女团【Jinricp】4月18日第四季番外篇第6集【越狱大作战】【12V/41.1G】](https://fuli.rulel.com/344.html)
 - [国产网黄福利姬「SLRabbit」OF性爱私拍视频合集[28V12.3G]](https://fuli.rulel.com/343.html)
 - [联动众多OF女网黄博主！超人气泰国炮王「ilovesexary」私拍合集[156V30.2G]](https://fuli.rulel.com/342.html)
-- [BJ脱衣舞女团PandaClass【熊猫班】4月17日第四季第2集【21点游戏】【12V/40.4G】](https://fuli.rulel.com/341.html)
-- [约炮达人【jaybankpresents】最全视频大合集[1011P250V128G]](https://fuli.rulel.com/340.html)
 <!-- BLOG-POST-LIST:END -->
