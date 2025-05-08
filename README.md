@@ -22,4 +22,4 @@ JINRICP第四季番外篇更新中，PandaClass第四季更新中。
 - [台湾肌肉壮汉泡良大神「黑亚当Rock_king」约炮合集[77P100V39.3G]](https://fuli.rulel.com/362.html)
 <!-- BLOG-POST-LIST:END -->
 ## ⬇️点击下方图片留言⬇️
-[![Typing SVG](https://chat.getloli.com/room/@jinri-cp/svg?width=750&height=360&limit=20&theme=light&fontSize=13&title=jinri-cp@github.com:%20~)](https://chat.getloli.com/room/@journey-ad.github?title=Jinricp的Github留言板)
+[![Typing SVG](https://chat.getloli.com/room/@jinri-cp/svg?width=750&height=360&limit=20&theme=light&fontSize=13&title=jinri-cp@github.com:%20~)](https://chat.getloli.com/room/@jinri-cp.github?title=Jinricp的Github留言板)
