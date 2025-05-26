@@ -15,9 +15,9 @@ JINRICP第四季番外篇更新中，PandaClass第四季更新中。
 **** 
 📕 &nbsp;**每日更新各类资源**
 <!-- BLOG-POST-LIST:START -->
+- [台湾极品女优【艾熙aixiaixi】福利视频合集[40V23.5G]](https://fuli.rulel.com/388.html)
 - [台湾PUA约炮大神【风流才子】系列49约啪视频合集[35P49V29.2G]](https://fuli.rulel.com/387.html)
 - [推特健身男模网红【YoShiE冰塊】约炮各种美女健身婊福利视频合集[248V26.1G]](https://fuli.rulel.com/386.html)
 - [BJ脱衣舞女团PandaClass【熊猫班】5月22日第四季第15集【最终职级赛-完结】【12V/41.2G】](https://fuli.rulel.com/385.html)
 - [糖心Vlog博主【捅主任】捅主任的日常福利视频合集[142V25.6G]](https://fuli.rulel.com/384.html)
-- [BJ脱衣舞女团PandaClass【熊猫班】5月20日第四季第14集【贡献冲刺日】【12V/38.3G】](https://fuli.rulel.com/383.html)
 <!-- BLOG-POST-LIST:END -->
