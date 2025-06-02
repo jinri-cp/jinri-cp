@@ -11,7 +11,7 @@ JINRICP第四季番外篇更新中，PandaClass第四季更新中。
 ****
 ## 订阅群组 🔞
 1. 电报订阅号[@xjavbus](https://t.me/xjavbus)
-2. 电报聊天群[@ljavbus](https://t.me/ljavbus)
+2. 电报聊天群[@jinrcp](https://t.me/jinrcp)
 **** 
 📕 &nbsp;**每日更新各类资源**
 <!-- BLOG-POST-LIST:START -->
