@@ -6,8 +6,6 @@ JINRICP DOWN：[点击下载JINRICP全季](https://mypikpak.com/s/VODz7HXQoqcX0U
 ****
 ## PandaClass 💯   
 PandaClass DOWN：[点击下载PandaClass全季](https://mypikpak.com/s/VOKOTZkoEnkyvCnELVSquM97o1)   
-💞目前JINRICP第四季已经全部更新，PandaClass第三季更新完毕。   
-JINRICP第四季番外篇更新中，PandaClass第四季更新中。
 ****
 ## 订阅群组 🔞
 1. 电报订阅号[@xjavbus](https://t.me/xjavbus)
