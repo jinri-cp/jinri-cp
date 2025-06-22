@@ -13,9 +13,9 @@ PandaClass DOWN：[点击下载PandaClass全季](https://mypikpak.com/s/VOKOTZko
 **** 
 📕 &nbsp;**每日更新各类资源**
 <!-- BLOG-POST-LIST:START -->
+- [BJ脱衣舞女团PandaClass【熊猫班】6月21日第五季第3集【新旧对决】【13V/44.2G】](https://fuli.rulel.com/420.html)
 - [BJ脱衣舞女团【Jinricp】6月20日第五季第7集【真理飘扬-高地战】【10V/31.6G】](https://fuli.rulel.com/419.html)
 - [BJ脱衣舞女团PandaClass【熊猫班】6月19日第五季第2集【美食游戏】【12V/38.6G】](https://fuli.rulel.com/417.html)
 - [BJ脱衣舞女团【Jinricp】6月18日第五季第6集【真理抽奖日】【14V/42G】](https://fuli.rulel.com/416.html)
 - [BJ脱衣舞女团PandaClass【熊猫班】6月17日第五季第1集【新季首播】【12V/39.9G】](https://fuli.rulel.com/415.html)
-- [BJ脱衣舞女团【Jinricp】6月16日第五季第5集【奴婢追击战】【13V/41G】](https://fuli.rulel.com/414.html)
 <!-- BLOG-POST-LIST:END -->
