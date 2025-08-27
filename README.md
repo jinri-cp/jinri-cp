@@ -13,9 +13,9 @@ PandaClass DOWN：[点击下载PandaClass全季](https://mypikpak.com/s/VOKOTZko
 **** 
 📕 &nbsp;**每日更新各类资源**
 <!-- BLOG-POST-LIST:START -->
+- [BJ脱衣舞女团PandaClass【熊猫班】8月26日第六季第1集【新季首播】【13V/38.3G】](https://fuli.rulel.com/501.html)
 - [国产果冻传媒原版系列合集【85V/47.6GB】](https://fuli.rulel.com/500.html)
 - [硬盘里精选优质糖心传媒佳片合集【139V/54.8GB】](https://fuli.rulel.com/499.html)
 - [国产传媒巨乳女优【凌薇】作品合集【42.1G/60V】](https://fuli.rulel.com/498.html)
 - [个人收藏精选的FC2美女（第三期）【32V24.8G】](https://fuli.rulel.com/497.html)
-- [Pornhub菲律宾情侣博主【pinay tita mama】视频合集[58V7.15G]](https://fuli.rulel.com/495.html)
 <!-- BLOG-POST-LIST:END -->
