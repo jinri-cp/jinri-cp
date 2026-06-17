@@ -18,9 +18,9 @@ PandaClass DOWN：[点击下载PandaClass全季](https://mypikpak.com/s/VOKOTZko
 **** 
 📕 &nbsp;**每日更新各类资源**
 <!-- BLOG-POST-LIST:START -->
-- [BJ脱衣舞女团【Jinricp】6月15日第七季第1集【新季首播】【12V/37.1G】](https://fuli.rulel.com/1117.html)
-- [【LADA破解】FAX-469 母というワイセツな生きもの 亭主の代わりに兄貴とやってる母/亭主がインポ・息子とできた母](https://fuli.rulel.com/1116.html)
-- [海角大神【真实操姑妈】姑妈现在是如狼似虎的年纪【91P12V1.28G】](https://fuli.rulel.com/1115.html)
-- [原档泄密 大二学妹 老母牛吃嫩草等6位良家妹子【109P84V】](https://fuli.rulel.com/1114.html)
-- [5位极品美女自拍泄密 【181P93V】](https://fuli.rulel.com/1113.html)
+- [BJ脱衣舞女团PandaClass【熊猫班】6月16日第八季第7集【11V/38G】](https://fuli.rulel.com/1123.html)
+- [【LADA破解】FAX-510 夫が死んでメスになる未亡人 寺の和尚とできた亡夫の嫁/亡夫の弟と狂う四十路母](https://fuli.rulel.com/1122.html)
+- [台湾高颜值女孩林小夏大尺度自拍全集【40P27V11.3G】](https://fuli.rulel.com/1121.html)
+- [淫叫无敌的女友跟交往四个月的男友第一次开房超级主动呻【8V】](https://fuli.rulel.com/1120.html)
+- [白嫩美乳女友，苗条身材像邻家姐姐，颜值一般但反差超骚【28P9V】](https://fuli.rulel.com/1119.html)
 <!-- BLOG-POST-LIST:END -->
