@@ -16,4 +16,4 @@ jobs:
       - name: Pull in blog's posts
         uses: gautamkrishnar/blog-post-workflow@v1
         with:
-          feed_list: "https://fuli.niuc.net/feed"
+          feed_list: "https://fuli.rulel.com/feed"
