@@ -1,10 +1,11 @@
 name: Latest blog post workflow
 on:
-  schedule: # Run workflow automatically
-    - cron: '0 */2 * * *' # Runs every hour, on the hour
-  workflow_dispatch: # Run workflow manually (without waiting for the cron to be called), through the GitHub Actions Workflow page directly
+  schedule:
+    - cron: '0 */2 * * *'   # 每天 00:00 UTC 运行
+  workflow_dispatch:      # 允许手动触发
+
 permissions:
-  contents: write # To write the generated contents to the readme
+  contents: write
 
 jobs:
   update-readme-with-blog:
@@ -12,9 +13,9 @@ jobs:
     runs-on: ubuntu-latest
     steps:
       - name: Checkout
-        uses: actions/checkout@v3
-      - name: Pull in blog's posts
+        uses: actions/checkout@v4
+      - name: Pull in blog posts
         uses: gautamkrishnar/blog-post-workflow@v1
         with:
           feed_list: "https://fuli.rulel.com/feed"
-        max_post_count: 50
+          max_post_count: 50
